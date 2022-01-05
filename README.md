@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Skeelox
+- 👀 I’m interested in stuff related to games and different kinds of programs
+- 🌱 I’m currently learning new ways to bypass the payment of certain programs and be able to use them for free
+- 📫 How to reach me: Email (〜￣▽￣)〜 vasilistopalos21v@gmail.com
